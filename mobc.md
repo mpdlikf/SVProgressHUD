@@ -1,6 +1,6 @@
 It gets lonely if you stick around an office until late afternoon on Fridays. Dimitri Otis/Stone via Getty Images 
 Do your office, inbox and calendar feel like a ghost town on Friday afternoons? You’re not alone. 
-I’m a labor economist who studies how technology and organizational change ac693https://test-ind-api.fyinformation.cc965fcvaffect productivity and well-being. In a study published in an August 2025 working paper, I found that the way people allocate their time to work has changed profoundly since the COVID-19 pandemic began.
+I’m a labor economist who studies how technology and organizational change affect productivity and well-being. In a study published in an August 2025 working paper, I found that the way people allocate their time to work has changed profoundly since the COVID-19 pandemic began.
 For example, among professionals in occupations that can be done remotely, 35% to 40% worked remotely on Thursdays and Fridays in 2024, compared with only 15% in 2019. On Mondays, Tuesdays and Wednesdays, nearly 30% worked remotely, versus 10% to 15% five years earlier. 
 And white-collar employees have also become more likely to log off from work early on Fridays. They’re starting the weekend sooner than before the pandemic, whether while working at an office or remotely as the workweek comes to a close. Why is that happening? I suspect that remote work has diluted the barrier between the workweek and the weekend – especially when employees aren’t working at the office.
 The changing rhythm of work 
